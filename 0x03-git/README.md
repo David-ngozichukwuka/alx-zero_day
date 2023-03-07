@@ -1,1 +1,1 @@
-hard things
+do hard things everyday 
